@@ -1,4 +1,4 @@
-泥好泥好 我是箖成成 •也最喜欢箖晓月的箖成成 •欢迎交朋友哦QWQ�
+泥好泥好 我是箖成成 •也最喜欢箖晓月的箖成成 •欢迎交朋友哦QWQ
 
 <!--
 **BangCun555/BangCun555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
